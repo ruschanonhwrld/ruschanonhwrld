@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi  👋, im ruschanonhwrld 
 
 # 💫 About Me:
 Im currently studying at Khon Kaen university <br>college of computing Major Information  technology and innovation intelligence 
